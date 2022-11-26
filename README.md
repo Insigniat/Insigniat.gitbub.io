@@ -1,1 +1,1 @@
-# goinghomegame.gitbub.io
+# goinhomegame.gitbub.io
